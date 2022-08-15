@@ -1,1 +1,0 @@
-# zati_pancara
